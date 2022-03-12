@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @Bademeister9
-- 📫 How to reach me gitinfo@paulstahl.com
