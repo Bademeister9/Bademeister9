@@ -5,7 +5,5 @@
 </p>
 
 
-- 📫 How to reach me **info@paulstahl.com**
-
 
 
